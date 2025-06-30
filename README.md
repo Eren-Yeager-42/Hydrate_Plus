@@ -1,2 +1,2 @@
-# Hydrate_Plus
-A fun company make for projects.
+# Hydrate_Plus (Pure, Powerful, Purposeful)
+A water bottle company which cares for his country and nature
